@@ -1,16 +1,69 @@
-## Hi there 👋
+# 🌊 Hi, I'm Olivia
 
-<!--
-**Bluewater80/Bluewater80** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Founder of Bluewater Brand Agency
 
-Here are some ideas to get you started:
+Helping Regional Businesses Get Seen, Trusted & Chosen.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## What We Do
+
+🚀 Brand Visibility
+
+📱 Social Media Management
+
+🎥 Content Creation
+
+⚙️ Business Automation
+
+📈 Business Growth Strategy
+
+---
+
+## Bluewater Growth Framework™
+
+🔍 Discover
+
+📝 Strategy
+
+🏗️ Build
+
+🚀 Activate
+
+📊 Optimise
+
+---
+
+## Industries We Support
+
+⚓ Marine
+
+🔨 Trades
+
+☕ Hospitality
+
+🏠 Real Estate
+
+🐾 Pet Industry
+
+🏢 Professional Services
+
+🌿 Regional Small Business
+
+---
+
+## Based In
+
+📍 Port Stephens, NSW Australia
+
+Supporting businesses throughout:
+
+• Port Stephens
+
+• Newcastle
+
+• Hunter Valley
+
+---
+
+### Visibility • Trust • Growth 🌊
